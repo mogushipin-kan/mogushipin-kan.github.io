@@ -1,0 +1,1 @@
+# mogushipin-kan.github.io
