@@ -1,1 +1,1 @@
-# mogushipin-kan.github.io
+# [mogushipin](https://mogushipinwang.pages.dev)
